@@ -1,5 +1,5 @@
 # 💫 About Me:
-student at cmrit pursuing information science engineering
+Information science engineering student
 
 
 ## 🌐 Socials:
